@@ -38,6 +38,8 @@ This repository contains my design work, including:
 ## 🌐 Portfolio
 
 https://mitaliportfolio2026.my.canva.site/
+Portfolio Presentation : https://canva.link/agrawal-mitali-portfolio-2026
+Portfolio PDF: https://drive.google.com/drive/folders/1X9x1OV5pGqh0NVhVBZbU0mcK0yg2C9RZ?usp=sharing
 
 ---
 
