@@ -44,7 +44,7 @@ https://mitaliportfolio2026.my.canva.site/
 ## 📩 Contact Me
 
 - 💼 Open for Freelance Projects & Collaborations  
-- 📧 Email: your email here  
+- 📧 Email: mitaliagrawal321@gmail.com 
 - 💬 LinkedIn: https://www.linkedin.com/in/mitali-agrawal0118
 
 ---
